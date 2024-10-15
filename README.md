@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Qurat31
+- 👀 I’m interested in learn n play
+- 🌱 I’m currently learning 1st standard
+- 💞️ I’m looking to collaborate on homeschooling kids
+- 📫 How to reach me through insta
